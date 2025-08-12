@@ -2,7 +2,7 @@
 Although I'm only a 15-year-old guy who usually lies on a couch listening to music, I have big life plans and a wide range of knowledge, especially in science and general topics.
 
 ### Interests and Hobbies 
-I absolutely love reading scientific articles and Wikipedia pages. Some of my "first ones" were "Precession of the perihelion of Mercury" and "Kepler's laws of planetary motion". I also enjoy reading in Russian, especially detective and historical novels. My other hobbies include playing tennis and studying (yeah, I do count it as a hobby).
+I absolutely love reading scientific articles and Wiki pages. Some of my "first ones" were "Precession of the perihelion of Mercury" and "Kepler's laws of planetary motion". I also enjoy reading books in Russian, especially detective and historical novels. My other hobbies include playing tennis and studying (yeah, I do count it as a hobby).
 
 ### Languages  
 Here are the languages I speak, with my approximate levels:
